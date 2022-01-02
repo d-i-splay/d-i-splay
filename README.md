@@ -7,4 +7,4 @@
 - 📈 I have an expertise in SEO and web performances
 
 - 💞️ I'm looking to collaborate on a project of providing an easy to use community platform for content creator and online teachers. Learn more here: https://krew.d-i-splay.com
-- 📫 How to reach me: noah.delophont@gmail.com or nd@d-i-splay.com
+- 📫 How to reach me: https://www.d-i-splay.com, noah.delophont@gmail.com or nd@d-i-splay.com
